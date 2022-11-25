@@ -1,2 +1,0 @@
-# MoritzMayrhofer.is
-James Bond
